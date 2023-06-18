@@ -1,3 +1,0 @@
-# cuberja
-sss
-# Portfolio
